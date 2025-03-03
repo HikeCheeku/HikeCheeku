@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HikeCheeku
 - 👀 I’m interested in dino nuggies
-- 🌱 I’m currently learning game
+- 🌱 I’m currently learning how to make games without intense coding
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me dont even try I am a minor
 - 😄 Pronouns: YOu think I am one of those things? no I am a man nothing else
